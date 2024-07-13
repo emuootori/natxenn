@@ -1,16 +1,13 @@
-## Hi there 👋
+                          hii !! i'm nat / xen !! ✦✦
 
-<!--
-**natxenn/natxenn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+                                 any pronouns 
+                                 
+                        ︶︶︶︶༉‧₊˚. ✦ ✦ ✦ ༉‧₊˚.︶︶︶︶
 
-Here are some ideas to get you started:
+![image](https://github.com/user-attachments/assets/63f184f1-5a8d-43e6-b168-868ce99ca66b)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+                        ︶︶︶︶༉‧₊˚. ✦ ✦ ✦ ༉‧₊˚.︶︶︶︶
+                        
+                   w2i !! .  c+h plz  ┆彡  yapper . female !!
+             i love hosting games !! find me at docks or pjsk area !!
+
