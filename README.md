@@ -8,6 +8,7 @@
         
                              ︶︶︶︶༉‧₊˚. ✦ ✦ ✦ ༉‧₊˚.︶︶︶︶
                         
-                         w2i !! .  c+h plz  ┆彡  yapper . female !!
-                   i love hosting games !! find me at docks or pjsk area !!
-
+                         w2i !! .  c+h plz  ┆彡  yapper . female !! adhd ://
+            i love hosting games (mostly build battle !! find me at docks or pjsk area !!
+                       you can mostly find me in an emu/nene/four skin!!
+                               more info in my carrd !! >_o
